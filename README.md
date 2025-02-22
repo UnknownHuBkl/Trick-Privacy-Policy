@@ -32,7 +32,3 @@ If you wish to have your data permanently deleted, you may submit a request to t
 For any questions, concerns, or data removal requests, please visit our [support server](https://discord.gg/invite/hindustani).
 
 Thank you for trusting Trick. We are committed to protecting your privacy while ensuring a secure and efficient service.
-
----
-
-Let me know if you need any modifications! 🚀
